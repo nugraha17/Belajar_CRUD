@@ -2,6 +2,7 @@
 
 jalan masih panjang
 
+jangan cepat senang
 
 
-jangan cepat senang 
+
