@@ -1,2 +1,2 @@
 # Belajar_CRUD
-google
+haha , saiki aku wes mudeng
